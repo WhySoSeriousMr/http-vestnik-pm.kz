@@ -1,0 +1,1 @@
+# http-vestnik-pm.kz
